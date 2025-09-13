@@ -1,0 +1,1 @@
+# yazKampi_Odev1
